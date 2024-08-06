@@ -9,4 +9,4 @@ Boas vindas ao meu perfil 💰💸⏳
 
 **Você pode entrar em contato comigo**📫
 
-![](https://media.tenor.com/L9TH3SB7chkAAAAM/maymun-mordeus.gif)
+![](https://media.tenor.com/bMbBrF2DU-4AAAAM/zeppeli-jojo.gif)
